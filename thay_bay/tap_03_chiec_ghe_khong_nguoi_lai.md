@@ -1,216 +1,176 @@
-# TẬP 3: CHIẾC GHE KHÔNG NGƯỜI LÁI | Quá khứ của thầy Bảy | Chuyện tâm linh miền Tây
+# TẬP 3: CHIẾC GHE KHÔNG NGƯỜI LÁI | Chuyện của chính thầy Bảy
 
-*(Truyện sáng tác, mọi tên người và địa danh đều là hư cấu.)*
-
----
-
-## MỞ ĐẦU
-
-[nhạc nền sóng nước, hơi trầm]
-
-Xin chào tất cả mọi người, chào mừng mọi người quay lại với kênh [TÊN KÊNH]. Hai tập vừa rồi, các bạn đã gặp thầy Bảy trong vai một người đứng ra "nghe" những người đã khuất. Nhưng có một câu hỏi mà rất nhiều bạn bình luận: *"Tại sao thầy Bảy lại làm được chuyện đó? Thầy có quá khứ gì không?"*
-
-Hôm nay, lần đầu tiên, Tí, cháu ngoại của thầy, kể cho mình nghe một câu chuyện mà chính thầy Bảy đã giấu suốt bốn mươi năm. Chuyện này diễn ra vào mùa nước nổi, trong một đêm rằm tháng Bảy.
-
-Mình xin cảnh báo trước: **đây là tập buồn nhất của loạt truyện**. Bạn nào đang nghe một mình thì nhớ chuẩn bị tinh thần nha.
+*(Truyện sáng tác, mọi tên người và địa danh đều là hư cấu. Tập này thầy kể chuyện của mình, đọc chậm, nhiều chỗ ngừng, giọng trầm và thật thà.)*
 
 ---
 
-## PHẦN 1: GHE MA TRÊN KÊNH CỒN SƠN
+Dạ, chào bà con. Tui là Bảy.
 
-Chuyện bắt đầu từ một lời đồn.
+Hôm nay tui hổng biết bắt đầu sao nữa. Chuyện này tui giữ trong bụng bốn chục năm rồi, chưa kể ai hết, kể cả thằng cháu ngoại tui. Bà con ráng nghe giùm tui, nếu tui nói hổng trôi chảy thì thông cảm, vì chuyện này khó nói.
 
-Mỗi tháng, cứ đúng đêm mười bốn âm lịch, trên con kênh Cồn Sơn, đoạn gần bến đò cũ, người ta thấy một chiếc ghe lặng lẽ trôi. Một chiếc ghe nhỏ, mui cong, trên mũi có treo một ngọn đèn dầu leo lét. Nhưng lạ ở chỗ: **không có ai chèo, không có ai lái**.
-
-Ghe cứ trôi, trôi chậm rãi giữa dòng, ngược cả chiều nước. Và những người ngồi gần đó nói rằng họ nghe thấy một giọng phụ nữ, hát ru em rất khẽ, một câu hò miền Tây nghe đứt đoạn.
-
-Mới đầu ai cũng cho là chuyện hù nhau. Nhưng rồi vài người đi đánh cá đêm, vì tò mò, chèo ra theo coi thử. Hai người thì thấy chiếc ghe biến mất ngay trước mặt. Một người khác, **chú Ba Dưa**, bị lật xuồng, may mà bơi được vô bờ, nhưng từ đó ốm mất một tháng.
-
-Xóm trưởng ông Chín Lực hoảng quá, đích thân đến tìm thầy Bảy.
-
-— Ông Bảy ơi. Xóm mình mà để vậy, người ta sợ không dám ra sông. Nghề nghiệp bà con sao đây?
-
-Thầy Bảy đang ngồi cuốn thuốc. Nghe tới "chiếc ghe mui cong, đèn dầu trên mũi", bàn tay ổng khựng lại.
-
-Tí ngồi cạnh nhìn thấy, mặt ông ngoại bỗng trắng bệch.
-
-— Ông ngoại sao vậy?
-
-Thầy Bảy không trả lời. Ổng cứ nhìn xuống đất. Một lúc sau, ổng nói rất khẽ, như nói với chính mình:
-
-— Bốn mươi năm... Họ vẫn chưa đi.
+Tui đóng ghe cả đời, mà tới giờ tui hổng dám nói tui là thợ giỏi.
 
 ---
 
-## PHẦN 2: THẦY BẢY KỂ
+Tui kể từ cái lời đồn trước.
 
-Tối đó, hai ông cháu ngồi ngoài bến sông. Trăng lưỡi liềm, nước đang lớn. Thầy Bảy hút liền ba điếu thuốc rồi mới mở miệng.
+Cách đây mấy tháng, trong xóm tui có chuyện. Cứ đêm mười bốn âm lịch, trên cái kênh gần bến đò cũ, người ta thấy một chiếc ghe lặng lẽ trôi. Ghe nhỏ, mui cong, trên mũi có treo ngọn đèn dầu leo lét. Mà hổng có ai chèo, hổng có ai lái. Nó cứ trôi, trôi ngược nước luôn. Có người nói còn nghe một giọng đàn bà hát ru em, hát khẽ khàng, đứt đoạn.
 
-— Con nhớ cái nón lá ngoại hay đội không?
+Mới đầu ai cũng nghĩ chuyện hù nhau. Sau có mấy người đi đánh cá đêm, tò mò, chèo ra theo coi. Hai người thấy ghe biến mất ngay trước mặt. Chú Ba Dưa thì bị lật xuồng, may bơi vô bờ được, mà ốm cả tháng.
+
+Ông xóm trưởng, ông Chín Lực, tới nhà tui. Ổng nói:
+
+— Ông Bảy ơi, xóm mình mà để vậy, người ta hổng dám ra sông, nghề nghiệp bà con sao đây.
+
+Tui đang cuốn thuốc rê. Ổng nói tới chiếc ghe mui cong, đèn dầu trên mũi, tay tui khựng lại. Thằng Tí ngồi kế bên, nó thấy tui tái mặt. Nó hỏi:
+
+— Ngoại sao vậy?
+
+Tui hổng trả lời. Một hồi tui mới nói, nói như nói với chính mình:
+
+— Bốn chục năm. Họ vẫn chưa đi.
+
+---
+
+Tối đó hai ông cháu ngồi ngoài bến. Trăng lưỡi liềm, nước đang lớn. Tui hút liền ba điếu thuốc, rồi mới nói được.
+
+Tui hỏi nó:
+
+— Con nhớ cái nón lá ngoại hay đội hông?
 
 — Dạ nhớ.
 
-— Cái nón đó không phải của ngoại. Nó là của người khác.
+— Cái nón đó hổng phải của ngoại. Của người khác.
 
-Tí im lặng. Thầy Bảy từ từ kể.
+Rồi tui kể.
+
+Hồi đó tui hai mươi ba tuổi, mới nối nghề đóng ghe của ba tui. Tay nghề thì khá, mà tánh nóng, cái gì cũng muốn làm lẹ cho có tiền. Hồi đó nhà tui nghèo, má tui đau nằm một chỗ, thuốc thang tốn lắm.
+
+Trong xóm có vợ chồng trẻ, anh Hai Thành với chị Liên, vừa có đứa con trai đầu lòng, bé Tâm, chưa đầy một tuổi. Anh Hai đặt tui đóng cho ảnh một chiếc ghe nhỏ, để chở nông sản đi bán trên Sài Gòn. Họ cần ghe xong trước rằm tháng Bảy, vì họ định chạy lên Mỹ Tho dự đám cưới em ảnh, tiện đem hàng lên bán.
+
+Gần tới ngày giao mà tui còn một tấm ván đáy chưa thay. Tấm ván đó bị mọt một phần. Lẽ ra tui phải thay, mà tui hổng có thời gian, hổng có tiền mua ván mới. Tui trét thêm lớp chai, sơn đè lên cho nhìn ra đẹp. Tui nghĩ bụng: "Đi một chuyến thôi, chắc hổng sao."
+
+Tui nghĩ vậy đó. Tui nghĩ chắc hổng sao.
+
+Đêm mười bốn tháng Bảy, vợ chồng anh Hai xuống ghe. Chị Liên đội cái nón lá mới mua, ôm con, miệng hát ru. Họ vẫy tay chào tui ở bến.
+
+Đêm đó trời nổi giông.
+
+Tui hổng nói tiếp được một lúc. Thằng Tí nó ngồi im, hổng hối.
+
+Người ta tìm thấy ghe chìm ở khúc sông cách đây ba cây số. Tấm ván đáy mục bung ra. Ba người, hổng ai sống. Người ta vớt được cái nón lá của chị Liên trôi vô bờ.
+
+Người ta nói do giông lớn, ghe nhỏ, trách trời. Tui im lặng. Tui im lặng cả đời.
 
 ---
 
-Hồi đó thầy Bảy mới hai mươi ba tuổi, vừa lấy nghề đóng ghe từ cha. Tay nghề giỏi mà tính nóng vội, cái gì cũng muốn làm lẹ để kiếm tiền. Trong xóm lúc ấy có một cặp vợ chồng trẻ, **anh Hai Thành và chị Liên**, vừa có đứa con trai đầu lòng, tên bé Tâm, chưa đầy một tuổi.
+Thằng Tí hỏi:
 
-Anh Hai Thành đặt thầy Bảy đóng cho một chiếc ghe nhỏ, để chở nông sản đi bán trên Sài Gòn. Ghe phải xong trước rằm tháng Bảy, vì họ định chạy lên Mỹ Tho dự đám cưới người em, tiện thể đem hàng lên bán.
-
-Thầy Bảy lúc đó đang thiếu tiền, mẹ đau nằm một chỗ. Thấy hạn đã gần mà còn một tấm ván đáy ghe chưa kịp thay, ổng... ổng chọn cách tắt. Một tấm ván bị mọt một phần, ổng trét thêm lớp chai, sơn đè lên, nghĩ bụng: *"Đi một chuyến thôi, chắc không sao."*
-
-Chuyến ghe đầu tiên, anh Hai Thành, chị Liên và bé Tâm xuống ghe đúng đêm mười bốn tháng Bảy. Chị Liên đội cái nón lá mới mua, ôm con, miệng hát ru. Họ vẫy tay chào thầy Bảy ở bến.
-
-Rồi... đêm đó trời nổi giông.
-
-Thầy Bảy ngưng lại. Mắt ổng nhìn xuống mặt nước đen ngòm.
-
-— Người ta tìm thấy ghe bị chìm ở khúc sông cách đây ba cây số. Tấm ván đáy... mục nát, bung ra. Cả ba người... không ai sống sót. Người ta vớt được cái nón lá của chị Liên trôi dạt vô bờ.
-
-Tí lặng người.
-
-— Ngoại giữ cái nón đó từ đó tới giờ?
+— Ngoại giữ cái nón đó từ hồi đó tới giờ?
 
 — Ừ. Ngoại giữ.
 
-— Sao ngoại không nói với ai?
+— Sao ngoại hổng nói với ai?
 
-Thầy Bảy cười, nụ cười chua chát nhất mà Tí từng thấy:
+Tui cười, mà tui biết nụ cười của tui lúc đó hổng có vui:
 
-— Nói sao hả con? Nói là ngoại hèn, vì tiền mà làm chết cả một gia đình? Người ta kết luận là do giông lớn, ghe nhỏ, trách trời. Ngoại im lặng. Ngoại sống cả đời với cái im lặng đó.
+— Nói sao hả con? Nói ngoại hèn, vì tiền mà làm chết cả một nhà hả?
 
----
+Sau đêm đó tui bắt đầu nghe. Nghe tiếng chị Liên hát ru ngoài bến. Nghe tiếng bé Tâm khóc. Hồi đầu tui tưởng tui điên. Tui đi khắp nơi, gặp một ông thầy già ở Ba Tri. Ổng nói:
 
-## PHẦN 3: NGƯỜI NGHE
+— Họ hổng oán con đâu. Họ chỉ hổng về được. Ghe chưa cập bến nên họ cứ trôi hoài.
 
-— Vậy nên... ngoại mới "nghe người chết"?
+Tui hổng biết làm sao giúp họ. Tui chỉ biết ngồi nghe. Rồi từ đó ai có người thân mất mà hổng yên, tui ngồi nghe giùm. Tui tự nói với mình: nếu hổng cứu được ba người đó, thì ít ra cứu người khác. Mà ba người đó thì tui hổng dám đối mặt, vì tui biết là tại tui.
 
-Thầy Bảy gật đầu chậm rãi.
+Thằng Tí nắm tay tui. Tay nó ấm, tay tui lạnh ngắt. Nó nói:
 
-— Sau đêm đó, ngoại bắt đầu nghe được. Nghe tiếng chị Liên hát ru ngoài bến. Nghe tiếng bé Tâm khóc. Ngoại tưởng mình điên. Ngoại đi khắp nơi, gặp một ông thầy già ở Ba Tri, ổng nói: *"Họ không oán con. Họ chỉ không về được. Ghe chưa cập bến, nên họ cứ trôi hoài."*
+— Ngoại ơi, họ trôi bốn chục năm rồi. Mình giúp họ đi.
 
-— Ngoại tìm cách giúp họ?
+Tui im thiệt lâu. Rồi tui gật đầu:
 
-— Không biết cách. Ngoại chỉ biết ngồi nghe. Rồi từ đó, ai có người thân khuất núi mà không yên, ngoại ngồi nghe giùm. Ngoại tự nhủ: nếu không cứu được họ, thì ít nhất ngoại cứu những người khác.
-
-Thầy Bảy ngẩng lên nhìn trăng.
-
-— Nhưng ba người đó, ngoại không dám đối mặt. Vì ngoại biết tại ngoại. Ngoại đóng ghe ẩu, ngoại giết họ.
-
-Tí nắm tay ông ngoại. Bàn tay đó run, lạnh ngắt.
-
-— Ngoại ơi. Họ đã trôi bốn chục năm rồi. Mình giúp họ đi.
-
-Thầy Bảy im lặng thật lâu. Rồi ổng gật đầu.
-
-— Đêm mai là rằm tháng Bảy. Tui với con sẽ đi.
+— Đêm mai là rằm tháng Bảy. Tui với con đi.
 
 ---
 
-## PHẦN 4: ĐÊM RẰM
+Tui kêu thằng Tí chuẩn bị ba thứ: bó nhang, nải chuối, với một chiếc ghe nhỏ. Nó ngạc nhiên:
 
-Hôm sau, thầy Bảy bảo Tí chuẩn bị ba thứ: một bó nhang, một nải chuối, và một chiếc **ghe nhỏ mới đóng**. Tí ngạc nhiên:
+— Ghe đâu ra vậy ngoại?
 
-— Mới đóng ở đâu ra?
+— Ngoại đóng từ hồi nào tới giờ, mỗi năm đóng thêm một chút. Bốn chục năm, giờ mới xong.
 
-— Ngoại đóng từ hồi nào tới giờ, mỗi năm đóng thêm một chút. Bốn chục năm, tới giờ mới xong.
+Nó hổng nói được gì. Thiệt ra chiếc ghe này tui đóng y chang chiếc ghe cũ, đóng từng chút trong cái kho sau vườn, phủ tấm vải bạc màu. Tui đóng mà hổng biết để làm gì, chỉ biết tay tui nó cứ muốn đóng.
 
-Tí bàng hoàng. Thầy Bảy đã đóng một chiếc ghe y hệt chiếc ghe cũ, từ lúc nào Tí cũng không hay. Nó nằm trong cái nhà kho sau vườn, phủ tấm vải đã bạc.
+Đêm rằm tháng Bảy, trăng tròn, nước kênh lặng như gương. Hai ông cháu đem ghe xuống bến, đặt nải chuối với nhang lên mũi ghe. Tui đội cái nón lá cũ, cái nón của chị Liên, rồi xuống ghe. Thằng Tí chèo.
 
-Đêm rằm tháng Bảy, trăng tròn vành vạnh, nước kênh lặng như gương. Hai ông cháu đem ghe xuống bến, đặt nải chuối và nhang lên mũi ghe. Thầy Bảy đội cái nón lá cũ, chiếc nón của chị Liên, rồi lên ghe, Tí chèo theo.
+Đúng nửa đêm, giữa kênh, từ trong sương mù xuất hiện một chiếc ghe khác. Mui cong, đèn dầu leo lét trên mũi. Nó trôi lặng lẽ tới gần ghe tui.
 
-Đúng nửa đêm, giữa kênh, xuất hiện một chiếc ghe khác. Mui cong, đèn dầu leo lét trên mũi. Nó trôi lặng lẽ, từ phía sương mù, tới gần hai ông cháu.
+Thằng Tí tay run lẩy bẩy. Tui thì hổng hiểu sao tui bình thản. Tui đứng dậy, cúi đầu thiệt thấp, giọng khàn:
 
-Tí tay run lẩy bẩy, nhưng thầy Bảy thì bình thản lạ thường. Ổng đứng dậy, cúi đầu thật thấp, giọng khàn khàn:
+— Anh Hai Thành, chị Liên, bé Tâm. Tui là Bảy, người đóng chiếc ghe này ngày xưa.
 
-— Anh Hai Thành. Chị Liên. Bé Tâm. Tui là Bảy, người đóng chiếc ghe này ngày xưa.
+Trên chiếc ghe kia, trong ánh đèn dầu chập chờn, tui thấy ba bóng người ngồi lặng lẽ. Một người đàn ông, một người đàn bà ôm đứa nhỏ, đầu đội cái nón lá mới tinh. Mặt họ nhòe trong sương, mà hổng có gì đáng sợ, chỉ buồn thôi.
 
-Trên chiếc ghe ma, trong ánh đèn dầu chập chờn, Tí thấy ba bóng người ngồi lặng lẽ: một người đàn ông, một người phụ nữ ôm đứa bé, đầu đội cái nón lá mới tinh. Gương mặt họ nhòe nhoẹt trong sương nhưng không có gì đáng sợ, chỉ buồn thăm thẳm.
-
-Thầy Bảy quỳ xuống ngay trên mũi ghe, nước mắt tuôn rơi, giọng nghẹn đến mức Tí gần như không nghe được:
+Tui quỳ xuống ngay trên mũi ghe. Tui khóc. Tui nói:
 
 — Tui xin lỗi. Bốn chục năm tui im lặng. Tui vì tiền, vì vội, nên đóng ghe ẩu. Tui xin lỗi anh chị, tui xin lỗi bé Tâm. Nếu trời cho tui đổi mạng tui lấy mạng ba người, tui cũng đổi.
 
-Gió thổi qua, lay nhẹ ngọn đèn dầu trên chiếc ghe ma.
+Gió thổi qua, lay ngọn đèn dầu. Rồi tui nghe một giọng đàn bà, rất khẽ, như hát, mà cũng như nói:
 
-Một giọng phụ nữ rất khẽ vang lên giữa sương, như hát, mà cũng như nói:
+— Anh Bảy... tụi tui hổng giận anh. Tụi tui chỉ muốn về nhà.
 
-— *Anh Bảy... tụi tui... không giận anh... Tụi tui... chỉ... muốn về nhà.*
-
-Thầy Bảy ngẩng phắt đầu:
+Tui ngẩng đầu:
 
 — Về nhà? Nhà ở đâu?
 
-— *Bến... Cồn Sơn... Ghe... chưa... cập bến.*
+— Bến Cồn Sơn. Ghe chưa cập bến.
 
-Thầy Bảy sững sờ. Rồi ổng hiểu. Bốn mươi năm qua, chiếc ghe cứ trôi vô định, vì nó chưa từng được **"cập bến"**. Người chết cần một nơi chốn để dừng lại, và người đóng ghe là người duy nhất có thể đưa họ về bến đó.
+Tui sững. Tui hiểu rồi. Bốn chục năm nay chiếc ghe cứ trôi, vì nó chưa được cập bến. Người mất cần một chỗ để dừng, và người duy nhất đưa họ về bến được là người đóng cái ghe đó.
 
-Thầy Bảy đứng dậy, lau nước mắt, bảo Tí:
+Tui đứng dậy, lau nước mắt, nói với thằng Tí:
 
 — Con chèo đi. Tui với con dẫn họ về nhà.
 
 ---
 
-## PHẦN 5: CẬP BẾN
+Hai chiếc ghe, một thiệt một hổng thiệt, chèo song song trên con kênh sáng trăng. Tui ngồi trước mũi, tay cầm bó nhang, miệng ngâm nga cái điệu hò mà tui nghe suốt bốn chục năm. Từ chiếc ghe bên cạnh tiếng chị Liên hát ru vang lên, hòa theo, nhẹ như hơi thở.
 
-Hai chiếc ghe, một thật một ma, lặng lẽ chèo song song trên con kênh sáng trăng. Thầy Bảy ngồi trước mũi, tay cầm bó nhang cháy dở, miệng khe khẽ ngâm nga điệu hò mà ổng đã nghe ròng rã bốn chục năm. Từ chiếc ghe bên cạnh, tiếng hát ru của chị Liên vang lên hòa theo, nhẹ như hơi thở.
+Thằng Tí sau này nói với tui, lúc đó hai bên bờ kênh mấy nhà dân đèn lần lượt tắt hết, mà hổng có ai tắt. Chó hổng sủa. Nước hổng động.
 
-Tí kể, lúc đó cả hai bên bờ kênh, những ngọn đèn nhà dân lần lượt tắt đi, không phải vì ai tắt, mà như có ai nhẹ nhàng cúi đầu kính cẩn. Chó trong xóm không ai sủa. Nước kênh lặng như đang nín thở.
+Tới bến đò cũ, chiếc ghe kia chậm dần rồi dừng hẳn, chạm nhẹ vô bờ. Tui bước lên bến. Tui lấy cái nón lá cũ của chị Liên, đặt lên mũi ghe. Tui nói:
 
-Khi tới bến đò cũ, chiếc ghe ma từ từ chậm lại, rồi dừng hẳn, nhẹ nhàng chạm vào bờ.
+— Chị Liên, cái nón này tui xin trả lại chị.
 
-Thầy Bảy bước lên bến, lấy chiếc nón lá cũ của chị Liên đặt lên mũi ghe ma.
+Cái nón khẽ lay, như có bàn tay cầm lấy. Rồi giữa ánh trăng, tui thấy ba bóng người đứng dậy, quay về phía tui, cúi đầu chào. Anh Hai Thành chắp tay. Chị Liên mỉm cười. Còn bé Tâm đưa tay nhỏ xíu vẫy vẫy.
 
-— Chị Liên. Cái nón này, xin trả lại chị.
+Sau đó tất cả tan đi. Chiếc ghe, ngọn đèn dầu, ba bóng người, như sương gặp nắng. Trên mặt nước còn lại một vệt sáng bạc dưới trăng.
 
-Chiếc nón khẽ lay, như có một bàn tay nhẹ nhàng cầm lấy.
-
-Rồi giữa ánh trăng, Tí thấy rõ ba bóng người đứng dậy, hướng về phía thầy Bảy, cúi đầu chào. Anh Hai Thành chắp tay. Chị Liên mỉm cười. Còn bé Tâm, thật bất ngờ, đưa bàn tay nhỏ xíu vẫy vẫy.
-
-Sau đó, tất cả tan biến.
-
-Chiếc ghe ma, ngọn đèn dầu, ba bóng người, như sương gặp nắng, nhẹ nhàng biến mất, để lại trên mặt nước một vệt sáng bàng bạc lấp lánh dưới trăng.
-
-Thầy Bảy quỳ xuống bến, vai run lên từng hồi. Lần đầu tiên trong đời Tí thấy ông ngoại khóc to như vậy, khóc như một đứa trẻ. Tí quỳ xuống ôm lấy ông. Không ai nói gì.
+Tui quỳ xuống bến. Tui khóc, khóc như đứa con nít. Thằng Tí quỳ xuống ôm tui, hổng nói gì hết.
 
 ---
 
-## KẾT: CON NƯỚC ĐÃ RÒNG
+Sáng hôm sau xóm yên. Hổng ai thấy ghe nữa. Chú Ba Dưa khỏe lại. Ông Chín Lực đem nải chuối qua cám ơn tui, hổng hỏi gì thêm. Tui ngồi ngoài bến cả buổi sáng. Tui hổng còn đội cái nón cũ nữa, tui đội cái nón mới trắng tinh, mua ở chợ.
 
-Sáng hôm sau, xóm Cồn Sơn rất bình yên. Không còn ai thấy ghe ma nữa. Chú Ba Dưa hồi phục hẳn. Ông xóm trưởng Chín Lực mang tới một nải chuối, cám ơn thầy Bảy, và không hỏi gì thêm.
+Thằng Tí hỏi:
 
-Còn thầy Bảy thì ngồi ngoài bến cả buổi sáng. Ổng không còn đội cái nón lá cũ. Ổng đội một cái nón mới, trắng tinh, mới mua ở chợ.
+— Ngoại hổng đội nón cũ nữa hả?
 
-Tí hỏi:
+— Ừ. Trả rồi. Giờ ngoại nhẹ rồi con.
 
-— Ngoại không đội nón cũ nữa hả?
+— Ngoại còn sợ nước hông?
 
-— Ừ. Trả rồi. Giờ ngoại nhẹ rồi, con.
+Tui ngó ra sông. Nước đang rút chậm. Tui cười, lần này tui cười thiệt:
 
-— Ngoại còn sợ nước không?
-
-Thầy Bảy ngước nhìn dòng sông, nơi nước đang rút chậm rãi. Ổng cười, nụ cười thanh thản nhất mà Tí từng thấy:
-
-— Nước có lớn thì cũng có ròng, con à. Cái gì rồi cũng qua. Quan trọng là con có dám ra bến mà đón nó hay không.
+— Nước có lớn thì cũng có ròng, con à. Cái gì rồi cũng qua. Quan trọng là con có dám ra bến mà đón nó hay hổng.
 
 ---
 
-## LỜI KẾT
+Thôi, tui kể xong rồi bà con.
 
-Tập này mình kể mà nghe trong lòng cũng nặng nặng, nhưng cũng nhẹ nhõm theo cách rất khó tả. Mình nghĩ có những điều mình làm sai ngày xưa, mình chôn nó suốt đời, sống như không có chuyện gì. Nhưng rồi đến một ngày, mình phải ra bến mà nhận nó.
+Tui hổng có gì hay để nói. Tui chỉ muốn nói là, có những chuyện mình làm sai hồi trẻ, mình giấu cả đời, mà nó hổng đi đâu hết. Nó ở đó, chờ mình. Có một ngày mình phải ra bến mà nhận nó. Tui hổng giỏi, hổng có can đảm, tui chờ bốn chục năm mới dám. Nếu bà con có điều gì như vậy, thì đừng chờ lâu như tui.
 
-Các bạn có thấy thầy Bảy dũng cảm không? Chứ như mình thì chắc mình giấu luôn tới già.
+Cám ơn bà con đã nghe tui kể. Chuyện tui nói hổng trôi chảy, thông cảm cho tui. Bà con thấy được thì bấm đăng ký kênh giùm tui, kỳ sau tui kể chuyện cô giáo với cái nón lá bỏ quên ngoài bến đò.
 
-Nếu thấy hay, nhớ **like, chia sẻ, đăng ký kênh và bấm chuông**. Các bạn cũng có thể để lại bình luận: trong cuộc đời, có điều gì các bạn từng làm sai và muốn xin lỗi người khác không?
-
-Tập sau là **"Chiếc Nón Lá Bỏ Quên"**: một cô giáo trẻ nhặt chiếc nón bên bến đò, và từ đó có người lạ theo về nhà.
-
-Cảm ơn mọi người đã nghe. Hẹn gặp lại. Chào thân ái!
-
-[nhạc nền kết thúc]
+Dạ, chào bà con. Bà con ngủ ngon.
 
 ---
 
@@ -220,8 +180,6 @@ Cảm ơn mọi người đã nghe. Hẹn gặp lại. Chào thân ái!
 
 **Chữ trên thumbnail:** "GHE MA ĐÊM RẰM" / "40 NĂM IM LẶNG"
 
-**Mô tả:** Mỗi đêm 14 âm lịch, một chiếc ghe không người lái lại trôi trên kênh Cồn Sơn. Lần đầu thầy Bảy kể về quá khứ, và vì sao ổng sợ nước. (Truyện sáng tác, nhân vật và địa danh hư cấu.)
+**Mô tả:** Mỗi đêm 14 âm lịch có một chiếc ghe không người lái trôi trên kênh. Lần đầu thầy Bảy tự kể về quá khứ của mình và vì sao ổng sợ nước. (Truyện sáng tác, nhân vật và địa danh hư cấu.)
 
 **Hashtag:** #truyentamlinh #thaybay #chuyenghema #chuyentamlinhmientay #chuyenkedemkhuya
-
-**Gợi ý hình ảnh:** chiếc ghe mui cong trong sương, ngọn đèn dầu leo lét, trăng rằm trên kênh, chiếc nón lá đặt trên mũi ghe, bàn tay trẻ con vẫy.

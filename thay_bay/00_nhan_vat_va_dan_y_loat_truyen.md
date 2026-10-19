@@ -28,12 +28,15 @@
 6. **Kết:** một bài học nhân quả, không kết bằng trừng phạt mà bằng sự buông bỏ, người xem dễ cảm động.
 7. **Chốt:** nhắn nhủ, mời kể chuyện, kêu gọi đăng ký.
 
-## 3. Giọng kể
+## 3. Giọng kể (đã chỉnh: thầy Bảy TỰ KỂ, không có người dẫn chuyện)
 
-- Giọng miền Tây, ấm, nói chậm. Dùng "ha", "nha", "đó", "dữ lắm", "hổng", "bả", "ổng", "tui", "má", "ba".
-- Người dẫn kể lại lời Tí, nên có thể xen: "Tí kể với mình là...", "Các bạn hình dung giùm mình...".
-- Chèn các nhịp ngắt "…" và câu ngắn ở đoạn rợn để người đọc voice dễ nhấn.
-- Mỗi tập dài khoảng 2.500–3.000 chữ, đọc khoảng 18–22 phút.
+- **Ngôi kể:** thầy Bảy kể ở ngôi thứ nhất, xưng "tui", gọi người nghe là "bà con". Với cháu thì xưng "ngoại". Không còn người dẫn chuyện kể lại lời Tí.
+- **Không phải người kể chuyện chuyên nghiệp:** nói chậm, có chỗ ngập ngừng, tự nhận "tui hổng biết kể chuyện", có lúc quên rồi nhớ lại, nói lộn rồi sửa. Không dùng hình ảnh văn chương, không cliffhanger kịch tính.
+- **Từ ngữ miền Tây:** "hổng", "hông", "nghen", "dữ lắm", "thiệt", "bả", "ổng", "giùm", "chớ", "hồi đó". Ít dùng "ha", "nha" kiểu người dẫn chuyện YouTube.
+- **Mở đầu giản dị:** "Dạ, chào bà con. Tui là Bảy, ở Mỏ Cày, Bến Tre." Nói ngay mình hổng phải thầy giỏi, hổng lấy tiền.
+- **Kết đơn sơ:** tóm một điều rút ra, xin bà con thông cảm vì kể hổng hay, nhắn nhẹ một câu về kênh, rồi "Dạ, chào bà con. Bà con ngủ ngon."
+- **Đọc voice:** đọc chậm, giọng trầm, đừng diễn. Có thể ngưng thở thật ở chỗ "..." cho tự nhiên.
+- Mỗi tập khoảng 2.000–2.500 chữ.
 
 ## 4. Danh sách tập (10 tập đề xuất)
 
