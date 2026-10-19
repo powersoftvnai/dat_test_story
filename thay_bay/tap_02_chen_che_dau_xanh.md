@@ -1,45 +1,63 @@
 # TẬP 2: CHÉN CHÈ ĐẬU XANH | Thầy Bảy Bến Tre kể
 
-*(Truyện sáng tác, mọi tên người và địa danh đều là hư cấu. Đọc như người già nói chuyện, nói tới đâu nhớ tới đó, không cần diễn.)*
+*(Truyện sáng tác, mọi tên người và địa danh đều là hư cấu. Đọc như người già nói chuyện, chậm, giọng thấp, đừng diễn, chỗ đáng sợ càng đọc đều càng rợn.)*
 
-Dạ, chào bà con, tui là Bảy đây, thầy Bảy ở Mỏ Cày, Bến Tre, bà con nhớ tui hông. Tập trước tui kể chuyện nhà bà Tám, nghe nói nhiều bà con nghẹn. Hôm nay tui kể chuyện khác. Chuyện này mới đầu tui cũng tưởng khó, mà tới cuối thì hổng khó, chỉ là nó thương. Tui kể hổng hay đâu nghen, bà con nghe cho có chuyện thôi.
+Dạ, chào bà con, tui là Bảy đây, thầy Bảy ở Mỏ Cày, Bến Tre. Hôm nay tui kể chuyện ở xóm tui, một chuyện mà tới giờ tui nhắc tới là tui hổng muốn ra gần sông ban đêm. Tui nói trước, chuyện này bà con đừng tưởng là chuyện bùa yêu như người ta đồn. Nó hổng phải. Tui thà là bùa yêu còn đỡ.
 
-Chuyện bắt đầu từ một chén chè đậu xanh. Trong xóm tui có vợ chồng anh Phúc với chị Mai. Anh Phúc ba mươi tám tuổi, hồi nhỏ ở xóm, lớn lên đi Sài Gòn làm thợ máy, mấy năm trước mới về quê mở tiệm sửa xe đầu xóm. Chị Mai hiền, đảm đang, hai vợ chồng có đứa con gái tám tuổi tên con Su. Nhà họ êm lắm, hổng có gì để nói hết.
+Trong xóm có vợ chồng anh Phúc với chị Mai. Anh Phúc ba mươi tám tuổi, hồi nhỏ ở xóm, lớn lên đi Sài Gòn làm thợ máy, mấy năm trước mới về quê mở tiệm sửa xe đầu xóm. Chị Mai hiền, có đứa con gái tám tuổi tên con Su. Nhà họ êm ấm lắm, tới khi có đám giỗ ở nhà cô Sáu Liễu.
 
-Cho tới hôm giỗ chú Tư Đầy. Chú Tư là chồng cô Sáu Liễu ở cuối xóm, chú mất hơn hai chục năm rồi. Cô Sáu ở góa nuôi thằng Tùng, cực dữ lắm. Mỗi năm tới ngày giỗ chú, cô nấu chè đậu xanh nước cốt dừa mời cả xóm qua ăn, vì hồi còn sống chú Tư thích món đó nhứt. Hôm đó anh Phúc qua ăn. Ảnh ăn xong chén chè thì ngồi thừ ra, lâu lắm, chị Mai kêu hai ba lần ảnh mới giật mình. Về nhà ảnh hổng nói gì hết.
+Cô Sáu ở cuối xóm, góa chồng hơn hai chục năm, chồng cô là chú Tư Đầy, chết đuối. Mỗi năm tới ngày giỗ chú, cô nấu chè đậu xanh nước cốt dừa mời cả xóm, vì món này hồi còn sống chú Tư thích nhứt. Hôm đó anh Phúc qua ăn. Ảnh ăn xong chén chè thì ngồi thừ ra, mắt nhìn trân trân vô cái chén, lâu lắm, chị Mai kêu hai ba lần ảnh mới giật mình. Về nhà ảnh hổng nói gì hết.
 
-Từ hôm đó có chuyện. Đêm đầu chị Mai thức giấc thấy bên cạnh trống, chị ra sân thì thấy chồng đứng ngoài cổng, mắt nhìn về phía cuối xóm, chỗ nhà cô Sáu. Chị hỏi anh làm gì vậy, ảnh nói mái nhà cô Sáu dột, mưa tối nay nước chảy xuống giường thằng nhỏ. Chị Mai nói trời hổng mưa, trăng sáng vằng vặc, mà ảnh hổng nghe. Sáng ra ảnh vác cái thang với mấy tấm tole đi sửa mái nhà cô Sáu. Mà nhà cô dột thiệt, dột dữ lắm, vá toàn bao nilon. Ảnh leo lên thay từng tấm, đóng từng cây đinh, nhanh lắm, như làm cả trăm lần rồi. Cô Sáu đứng dưới nói anh Phúc ơi tui đâu có nhờ anh, mà ảnh vẫn làm.
+Đêm đó chị Mai nghe có tiếng nước nhỏ giọt. Chị thức dậy thì thấy bên cạnh trống. Chị ra tới cửa, thấy chồng đứng ở sân. Ảnh đứng quay lưng, hổng nhúc nhích, người ướt đẫm từ đầu tới chân, nước nhỏ từ tóc xuống từng giọt, trên nền sân có một vũng nước, mà ngoài trời hổng có mưa, hổng có sương, tối đó trăng sáng. Chị đứng sau lưng ảnh, chị ngửi thấy mùi bùn, mùi nước sông, tanh tanh. Chị kêu anh Phúc, ảnh hổng quay lại. Chị kêu hai ba lần nữa, ảnh mới nói, giọng hổng phải giọng ảnh, trầm, khàn, già, như đàn ông năm chục tuổi, ảnh nói nó lạnh quá.
 
-Cả tuần như vậy, đêm nào ảnh cũng thức dậy đi qua nhà cô Sáu, khi thì sửa cái cửa, khi thì thông cống, khi thì chặt củi, sáng ra ảnh hổng nhớ gì hết. Trong xóm bắt đầu đồn. Bà Hai Sửu, bà con biết rồi đó, bả nói con Liễu góa chồng, chắc bả bỏ bùa thằng Phúc rồi. Chị Mai nghe mà chịu hổng nổi. Có bữa chị đi theo chồng, núp sau bụi chuối coi, thì thấy ảnh đứng trước cửa nhà cô Sáu, hai tay buông xuống, kêu nhỏ một cái tên. Hổng phải tên cô Sáu, mà là Tư Đầy. Giọng ảnh lúc đó hổng phải giọng ảnh, trầm hơn, khàn hơn, già hơn, như đàn ông năm chục tuổi.
+Chị Mai hổng biết chị chạy vô nhà bằng cách nào. Chị khóa cửa, chị ôm con Su, chị nghe ngoài sân tiếng chân ướt lẹp bẹp đi tới đi lui, cả đêm, tới sáng.
 
-Chị Mai về khóc cả đêm. Sáng ra chị đi coi bói ngoài chợ, ông thầy bói nói chị bị bùa yêu, kêu chị đi làm bùa giải hoặc tính sổ người đàn bà đó. Chị hoảng quá, về nhà định cầm dao. May lúc đó thằng Tí cháu tui đi ngang tiệm sửa xe, thấy chị mắt sưng húp, nó hỏi, chị kể hết. Nó nói chị chờ em chút, em dắt ông ngoại em tới.
+Sáng ra ảnh nằm trên giường như hổng có chuyện gì. Quần áo khô. Chỉ có dưới gầm giường, chị thấy một vũng nước nhỏ, nước đen, mùi sông. Ảnh hổng nhớ gì. Chị hổng nói ai, vì sợ người ta cho chị điên.
 
-Tui tới nhà chị Mai. Tui hổng vô nhà liền, tui đứng ngoài sân đi một vòng. Rồi tui hỏi chị hồi nhỏ chồng chị có chuyện gì lớn hông. Chị nói ảnh kể hồi mười sáu tuổi ảnh té sông suýt chết, có người cứu, rồi sau đó nhà ảnh chuyển lên thành phố luôn. Tui hỏi chị biết ai cứu ảnh hông, chị lắc đầu. Anh Phúc ngồi trên bộ ván, mắt mơ màng. Tui ngồi xuống đối diện, nhìn ảnh một hồi rồi hỏi con tên gì. Ảnh ngước lên, ánh mắt khác hẳn, nói chậm chậm, tui là Đầy.
+Đêm thứ hai, thứ ba cũng vậy. Tới đêm thứ tư, chị thức dậy thì cả chồng cả con Su đều hổng còn trên giường. Cửa nhà mở. Chị chạy ra, thì thấy ở con đường đất dẫn ra bờ sông có một chuỗi dấu chân ướt, một dấu chân lớn, kế bên là một dấu chân nhỏ. Chị chạy theo. Chị thấy anh Phúc đứng ngoài bến, nước tới ngang bụng, một tay nắm tay con Su, con nhỏ đứng sát mép nước, mắt mở trừng trừng. Ảnh kéo con từ từ, từ từ xuống sông, miệng ảnh nói đi con, xuống đây ba dắt đi chơi, dưới nước hổng có lạnh đâu.
 
-Chị Mai xỉu muốn té, thằng Tí mặt tái mét. Tui thì hổng bất ngờ lắm vì tui cũng đoán trước rồi. Tui hỏi chú Tư ở lại làm gì, chú muốn nói gì với tụi tui. Giọng ảnh khàn khàn, đứt quãng, nói tui lo cho vợ con tui. Mái nhà dột. Thằng nhỏ ho hoài. Hổng ai giúp. Tui hổng đòi hỏi gì, tui chỉ nhờ nó giữ lời. Tui hỏi giữ lời gì chú. Ảnh nhắm mắt, nước mắt chảy xuống, nói hôm đó nó té sông, tui nhảy xuống cứu, cứu được nó thì tui hết hơi. Lúc tui nằm trên bờ tui nói với nó, nếu tui có mệnh hệ gì thì con đỡ cô Liễu giùm cô nghen. Nó khóc, nó gật đầu, nó hứa. Nó mới mười sáu tuổi.
+Chị Mai la thất thanh. Chị lao xuống nước, ôm con Su giật ra, ảnh buông tay hổng chống cự, ảnh quay lại nhìn chị, mắt ảnh trắng dã, hổng có tròng đen, ảnh cười, mà là kiểu cười của người hổng hiểu mình đang cười. Chị ôm con chạy một mạch về, hổng dám ngoái lại.
 
-Hổng ai nói được gì hết. Tui nói lại cho cả nhà nghe cho rõ, rằng anh Phúc hồi mười sáu tuổi té sông, người cứu ảnh là chú Tư Đầy, chú cứu được ảnh mà chú hết sức, chìm luôn, trước khi mất chú dặn ảnh lo cho vợ chú. Chị Mai nói ảnh hổng bao giờ nói với con chuyện này. Anh Phúc lúc này tỉnh lại, khóc ròng, nói con quên thầy ơi, con nhớ cái ngày té sông mà chuyện sau đó con hổng nhớ, mãi tới hôm ăn chén chè đậu xanh nhà cô Sáu con mới nhớ ra, đúng cái vị chè đó, y chang hồi cô nấu cho con ăn sau khi chú mất, nấu để cám ơn con còn sống. Hồi đó nhà con lên thành phố liền, ba má nói quên đi cho khỏe, con đi làm ăn con quên thiệt, hai chục năm con hổng hỏi thăm cô Sáu một câu.
+Trong xóm bắt đầu đồn. Bà Hai Sửu, bà con biết rồi đó, bả nói tại con Liễu bỏ bùa thằng Phúc. Chị Mai nghe mà hổng còn sức cãi. Chị đi coi bói ngoài chợ, ông thầy bói nói chị bị bùa yêu, kêu chị đi làm bùa giải. Chị hổng làm. Chị biết hổng phải. May hôm đó thằng Tí cháu tui đi ngang tiệm sửa xe, thấy chị tóc tai bơ phờ, mặt xanh như tàu lá. Nó hỏi, chị kể hết. Nó chạy về kêu tui.
 
-Tui nói với ảnh, con hổng có tội, con nhỏ quá mà. Nhưng chú Tư thì chờ, chờ hai chục năm. Cô Sáu một mình nuôi con, nhà dột, con ốm, chú ở đây chú xót. Tới khi con về xóm chú tìm được con, mượn cái vị chè mà nhắc con. Chị Mai hỏi nhỏ vậy hổng phải bùa yêu hả thầy. Tui cười, tui nói bùa yêu gì, người chết mà còn thương vợ thương con tới vậy, mình nghe mà thấy xấu hổ chớ bùa với bả. Chị Mai đỏ mặt cúi xuống. Bà Hai Sửu đứng ngoài cửa nghe hết, bả lặng lẽ đi về, lần này hổng thấy bả rỉ tai ai.
+Tui tới nhà chị Mai lúc xế chiều. Tui hổng vô nhà liền, tui đứng ngoài sân. Tui nhìn cái vũng nước trước thềm, nước đen, hổng khô, hổng ai đổ. Tui hổng cần hỏi gì nhiều, tui biết rồi. Tui hỏi chị hồi nhỏ chồng chị có chuyện gì lớn hông. Chị nói hồi mười sáu tuổi ảnh té sông suýt chết, có người cứu, rồi nhà ảnh chuyển lên thành phố. Tui hỏi chị biết ai cứu ảnh hông, chị lắc đầu.
 
-Tui dặn anh Phúc với chị Mai chuẩn bị ba thứ, một nén nhang, một chén chè đậu xanh, với một lời hứa nói bằng miệng. Tối đó hai vợ chồng, con Su, cô Sáu Liễu với thằng Tùng đứng trước bàn thờ chú Tư. Tui kêu anh Phúc nói đi con. Ảnh quỳ xuống, giọng run, nói chú Tư con là Phúc đây, con xin lỗi vì con quên lời hứa, giờ con hứa lại, từ nay cô Sáu với thằng Tùng là gia đình con, con lo mái nhà, lo học hành cho thằng nhỏ, cô Sáu có chuyện gì vợ chồng con lo hết. Chị Mai quỳ kế bên, đặt tay lên vai chồng, nói chú Tư ơi con xin lỗi vì con nghi ngờ chồng, con xin hứa con coi cô Sáu như chị ruột. Cô Sáu khóc nghẹn, ôm thằng nhỏ vô lòng, hổng nói được gì.
+Anh Phúc ngồi trên bộ ván, mắt mơ màng. Tui ngồi xuống đối diện, tui nhìn ảnh, thì ảnh ngước lên. Hổng phải mắt ảnh. Tui hỏi, giọng tui nhỏ thôi, con tên gì. Ảnh nói, giọng khàn khàn, rin rít như nước vô cổ họng, tui là Đầy.
 
-Nhang cháy đều. Tới khi cháy được nửa thì khói tự nhiên nghiêng qua một bên, ngả về phía anh Phúc, rồi quấn nhẹ quanh vai ảnh, như ai vỗ vai. Lúc đó trong nhà có mùi chè đậu xanh thơm ngọt, mà chén chè trên bàn thờ vẫn còn đầy. Rồi mùi đó dần dần tan. Tui nói chú Tư đi rồi, chú yên tâm rồi.
+Chị Mai xỉu. Thằng Tí lùi tuốt ra sân. Tui thì ngồi yên, vì lúc đó mà tui chạy là mất. Tui nói chú Tư, chú muốn gì. Ảnh nói, từng chữ rin rít, nó hứa với tui, nó hổng giữ. Hai chục năm tui nằm dưới đó. Lạnh. Hổng ai nhớ tui. Tui chết thay nó, nó đi mất. Tui kéo nó xuống cho đủ, hai đứa xuống cho có bạn.
 
-Sau đó anh Phúc hổng còn mộng du nữa. Mà ảnh vẫn ghé nhà cô Sáu hoài, lần này ban ngày, đàng hoàng, có chị Mai đi cùng. Họ thay luôn cái mái, xây thêm cái bếp, đưa thằng Tùng đi bác sĩ, cái chứng ho của thằng nhỏ hết hẳn sau khi chữa đàng hoàng. Trong xóm sau này có ai đồn chuyện tam giác tình ái thì bà Hai Sửu là người nạt trước, bả nói đừng có nói bậy, biết gì mà nói.
+Tui hỏi nó hứa gì. Ảnh nhắm mắt, nước mắt chảy ra mà nước mắt đen, mùi sông, ảnh nói hôm đó nó té sông, tui nhảy xuống cứu, cứu được thì hết hơi, lúc tui nằm trên bờ tui nói với nó, nếu tui có mệnh hệ gì thì con lo cho cô Liễu giùm cô. Nó khóc, nó gật đầu, nó hứa. Nó mới mười sáu tuổi. Hai chục năm rồi, nó hổng hỏi thăm vợ con tui một câu, thằng nhỏ ho hoài, mái nhà dột, tui nhìn, tui thấy hết, tui hổng làm được gì.
 
-Thằng Tí hỏi tui, ngoại ơi nếu hồi đó chị Mai hổng nhờ thì chuyện này ra sao. Tui rít hơi thuốc rê, ngó ra sông, tui nói thì ảnh mộng du hoài, tới khi nào có người nghe chú Tư. Người mất hổng có đòi mạng ai đâu con, họ chỉ đòi một lời hứa được giữ.
+Rồi ảnh nhìn tui, trợn trắng mắt, nói bằng cái giọng thấp mà tui nghe lạnh buốt, ông Bảy, ông đừng chen vô, tui kéo cả ông xuống luôn.
 
-Thôi, hết chuyện rồi bà con. Tui hổng có gì khôn ngoan để nói, tui chỉ nghĩ vầy. Nhiều khi mình tưởng là ma ám, là bùa, mà thiệt ra chỉ là một lời hứa mình quên. Bà con nhớ lại coi, có lời hứa nào hứa với người thân, với người đã mất, mà giờ quên rồi hông. Nhớ ra thì giữ lại, người sống kẻ mất đều yên. Tui nói hổng hay, bà con thông cảm. Bà con thấy được thì bấm đăng ký kênh giùm tui. Chuyện tiếp theo là chuyện chiếc ghe, chuyện của chính tui, tui hổng dám kể lâu rồi, mà kỳ này tui sẽ kể. Dạ, tui chào bà con, bà con ngủ ngon.
+Bà con biết hông, cái cảm giác lúc đó, tui sợ, sợ thiệt, chân tui run mà tui hổng dám để nó thấy. Tui nói chú Tư, tui hổng chen, tui đứng đây làm chứng cho chú. Tui cũng hổng cản chú đòi lời hứa. Mà chú kéo thằng này xuống thì lời hứa hổng ai giữ, vợ con chú vẫn dột nhà, vẫn ho, chú nhìn mà hổng làm gì được nữa.
+
+Ảnh im lặng. Cái im lặng đó tui nhớ hoài. Trong nhà hổng có gió mà tui nghe tiếng nước chảy, chảy từ đâu đó dưới sàn nhà.
+
+Tui kêu chị Mai tỉnh dậy, kêu chuẩn bị ba thứ, nén nhang, chén chè đậu xanh với anh Phúc đứng dậy được. Tối đó cả nhà dắt cô Sáu Liễu với thằng Tùng qua. Chén chè đặt trên bàn thờ chú Tư, mà tui nhìn cái chén tui thấy lạ, chén chè mới nấu mà mặt chè đã đóng váng, trong chén lềnh phềnh một lớp nước đục, mùi bùn.
+
+Anh Phúc quỳ xuống, run bần bật, ảnh khóc, ảnh nói chú Tư con là Phúc, con xin lỗi, con quên, con nhỏ quá con quên, giờ con hứa lại, con lo mái nhà, lo thằng Tùng, lo cô Sáu cho tới chết. Chị Mai quỳ kế bên nói con cũng hứa. Cô Sáu thì đứng đó ôm thằng nhỏ, cô hổng nói được gì, cô chỉ nhìn cái bàn thờ chồng, nhìn hoài.
+
+Nhang cháy hổng đều. Khói nghiêng nghiêng, quấn quanh cổ anh Phúc mấy vòng, rồi tui nghe một tiếng ọc, ảnh ói ra một đống nước đen kịt, hôi mùi sông, ói liền mấy lần, tới khi hết sức. Chén chè trên bàn thờ tự nhiên nứt toác, nước chảy ra bàn. Rồi mùi bùn dần dần nhạt.
+
+Tui nói chú Tư đi rồi.
+
+Mà tui hổng chắc. Tui nhìn cô Sáu, thấy cô đứng bất động, mắt cô hướng về cái chỗ trống giữa nhà, cô nói rất khẽ, anh Tư.
+
+Sau đó anh Phúc hổng còn mộng du nữa. Ảnh với chị Mai lo cho cô Sáu như đã hứa, thay cái mái, xây cái bếp, đưa thằng Tùng đi bác sĩ. Chuyện êm.
+
+Mà có một chuyện, bà con, tui kể cho bà con nghe cuối cùng. Mỗi đêm nước ròng, trên bàn thờ chú Tư nhà cô Sáu, cô nói với tui, vẫn thấy một vũng nước nhỏ, lau hoài hổng hết. Có lần cô nói nghe thấy tiếng ai ngồi bên cạnh giường thằng Tùng, nhẹ nhẹ vỗ lưng thằng nhỏ ngủ. Cô nói cô hổng sợ. Còn tui hỏi cô, cô có nhìn thấy ai hông. Cô nói hông. Cô chỉ nghe tiếng nước nhỏ giọt, từng giọt, từng giọt, từ trên tóc ai đó xuống nền nhà.
+
+Thôi, tui kể tới đây. Bà con nhớ lại coi, có lời hứa nào mình hứa với người đã mất, mà mình quên hông. Người sống quên được, chớ người mất hổng quên đâu. Tui kể hổng hay, bà con thông cảm. Bà con thấy được thì bấm đăng ký kênh giùm tui. Kỳ sau tui kể chuyện của chính tui, chiếc ghe, chuyện tui hổng dám kể bốn chục năm. Dạ, tui chào bà con. Đêm nay nếu nghe tiếng nước nhỏ giọt trong nhà, bà con đừng ra coi.
 
 ---
 
 ### GÓI ĐĂNG YOUTUBE (tham khảo)
 
-**Tiêu đề:** TẬP 2: CHÉN CHÈ ĐẬU XANH | Chồng bỗng "phải lòng" hàng xóm góa | Thầy Bảy Bến Tre kể
+**Tiêu đề:** TẬP 2: CHÉN CHÈ ĐẬU XANH | Chồng bị hồn chết đuối nhập, dắt con ra sông lúc nửa đêm | Thầy Bảy kể
 
-**Chữ trên thumbnail:** "BÙA YÊU?" (gạch chéo) → "LỜI HỨA 20 NĂM"
+**Chữ trên thumbnail:** "DẮT CON XUỐNG SÔNG" / "BÙA YÊU?" (gạch chéo)
 
-**Mô tả:** Anh Phúc đêm nào cũng sang nhà cô hàng xóm góa sửa mái, chặt củi, gọi một cái tên lạ. Cả xóm tưởng là bùa yêu. Thầy Bảy tự kể lại sự thật sau chén chè đậu xanh. (Truyện sáng tác, nhân vật và địa danh hư cấu.)
+**Mô tả:** Anh Phúc đêm nào cũng ướt sũng đứng giữa sân, nửa đêm dắt con gái ra bến sông. Cả xóm đồn bùa yêu, nhưng sự thật còn đáng sợ hơn nhiều. (Truyện sáng tác, nhân vật và địa danh hư cấu.)
 
-**Hashtag:** #truyentamlinh #thaybay #chuyentamlinhmientay #chuyenmatamlinh #benre
+**Hashtag:** #truyenma #chuyenmathat #thaybay #chuyentamlinhmientay #chuyenmadem #benre

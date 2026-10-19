@@ -38,6 +38,14 @@
 - **Đọc voice:** đọc chậm, giọng trầm, đừng diễn. Có thể ngưng thở thật ở chỗ "..." cho tự nhiên.
 - Mỗi tập khoảng 2.000–2.500 chữ.
 
+## 3b. Tông truyện: KINH DỊ là chính, ít tình cảm
+
+- Người mất **không hiền**. Họ đáng sợ, có thể hại người sống (kéo trẻ con xuống đất, dắt người ra sông, lật xuồng). Thầy Bảy **sợ thiệt**, không phải người hùng.
+- Chi tiết rợn ngắn, cụ thể, đời thường: tiếng lết dưới đất, vũng nước đen không khô, bàn tay nhỏ trắng bệch, mùi bùn sông, tiếng gõ ba tiếng dưới sàn, con chó bỏ chạy, côn trùng chim chóc không dám tới gần.
+- Chuyện đời (lỗi lầm, lời hứa) chỉ là **nguyên nhân** để có ma, không dành chỗ cho cảnh khóc lóc, tha thứ ấm áp.
+- Kết **không êm hẳn**: hóa giải xong vẫn còn một chi tiết gợn (vũng nước không khô, vết tay trên cổ chân, câu nói của con nhỏ), và lời dặn cuối đáng sợ ("đêm nay nghe tiếng gõ thì đừng nhìn xuống").
+- Giữ chi tiết đủ gọn để không thành cảnh máu me.
+
 ## 4. Danh sách tập (10 tập đề xuất)
 
 | Tập | Tên | Ý chính |
