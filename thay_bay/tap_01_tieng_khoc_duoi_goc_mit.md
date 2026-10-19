@@ -56,7 +56,7 @@ Bà Hai Sửu ngớ ra:
 
 Thầy gật đầu. Ổng vấn xong điếu thuốc, bỏ vô miệng, nói:
 
-— Chiều nay nước ròng. Mình qua coi.
+— Chiều nay nước ròng. Tui qua coi.
 
 Tí đi theo, vì tò mò, và cũng vì... không dám ở nhà một mình.
 
@@ -190,7 +190,7 @@ Thầy Bảy lúc đó đứng lên, nói giọng rất hiền:
 
 Bà Tám gục đầu xuống nền nhà.
 
-— Đêm nay là đêm nước ròng. Mình sẽ làm một việc.
+— Đêm nay là đêm nước ròng. Tui sẽ làm một việc.
 
 Thầy Bảy không dùng bùa, không dùng phép. Ổng chỉ bảo anh Út đi lấy một cái chiếu mới, một bộ quần áo trẻ sơ sinh, và một chén cháo trắng nóng.
 

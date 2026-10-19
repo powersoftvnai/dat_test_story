@@ -106,7 +106,7 @@ Tí nắm tay ông ngoại. Bàn tay đó run, lạnh ngắt.
 
 Thầy Bảy im lặng thật lâu. Rồi ổng gật đầu.
 
-— Đêm mai là rằm tháng Bảy. Mình sẽ đi.
+— Đêm mai là rằm tháng Bảy. Tui với con sẽ đi.
 
 ---
 
@@ -126,19 +126,19 @@ Tí bàng hoàng. Thầy Bảy đã đóng một chiếc ghe y hệt chiếc ghe
 
 Tí tay run lẩy bẩy, nhưng thầy Bảy thì bình thản lạ thường. Ổng đứng dậy, cúi đầu thật thấp, giọng khàn khàn:
 
-— Anh Hai Thành. Chị Liên. Bé Tâm. Tôi là Bảy, người đóng chiếc ghe này ngày xưa.
+— Anh Hai Thành. Chị Liên. Bé Tâm. Tui là Bảy, người đóng chiếc ghe này ngày xưa.
 
 Trên chiếc ghe ma, trong ánh đèn dầu chập chờn, Tí thấy ba bóng người ngồi lặng lẽ: một người đàn ông, một người phụ nữ ôm đứa bé, đầu đội cái nón lá mới tinh. Gương mặt họ nhòe nhoẹt trong sương nhưng không có gì đáng sợ, chỉ buồn thăm thẳm.
 
 Thầy Bảy quỳ xuống ngay trên mũi ghe, nước mắt tuôn rơi, giọng nghẹn đến mức Tí gần như không nghe được:
 
-— Tôi xin lỗi. Bốn chục năm tôi im lặng. Tôi vì tiền, vì vội, nên đóng ghe ẩu. Tôi xin lỗi anh chị, tôi xin lỗi bé Tâm. Nếu trời cho tôi đổi mạng tôi lấy mạng ba người, tôi cũng đổi.
+— Tui xin lỗi. Bốn chục năm tui im lặng. Tui vì tiền, vì vội, nên đóng ghe ẩu. Tui xin lỗi anh chị, tui xin lỗi bé Tâm. Nếu trời cho tui đổi mạng tui lấy mạng ba người, tui cũng đổi.
 
 Gió thổi qua, lay nhẹ ngọn đèn dầu trên chiếc ghe ma.
 
 Một giọng phụ nữ rất khẽ vang lên giữa sương, như hát, mà cũng như nói:
 
-— *Anh Bảy... tụi tôi... không giận anh... Tụi tôi... chỉ... muốn về nhà.*
+— *Anh Bảy... tụi tui... không giận anh... Tụi tui... chỉ... muốn về nhà.*
 
 Thầy Bảy ngẩng phắt đầu:
 
@@ -150,7 +150,7 @@ Thầy Bảy sững sờ. Rồi ổng hiểu. Bốn mươi năm qua, chiếc ghe
 
 Thầy Bảy đứng dậy, lau nước mắt, bảo Tí:
 
-— Con chèo đi. Mình dẫn họ về.
+— Con chèo đi. Tui với con dẫn họ về nhà.
 
 ---
 
@@ -194,7 +194,7 @@ Tí hỏi:
 
 Thầy Bảy ngước nhìn dòng sông, nơi nước đang rút chậm rãi. Ổng cười, nụ cười thanh thản nhất mà Tí từng thấy:
 
-— Nước có lớn thì cũng có ròng, con à. Cái gì rồi cũng qua. Quan trọng là mình có dám ra bến mà đón nó hay không.
+— Nước có lớn thì cũng có ròng, con à. Cái gì rồi cũng qua. Quan trọng là con có dám ra bến mà đón nó hay không.
 
 ---
 
